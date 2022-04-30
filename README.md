@@ -9,7 +9,7 @@
 
 - 📫 Você me acha através do e-mail **jessicaisabelle221@gmail.com**
 
-- 📄 Fui fundada por Jessica Isabelle e aqui estão as minhas habilidades e experiências [www.linkedin.com/in/jessica-isabelle-marques-dos-santos](www.linkedin.com/in/jessica-isabelle-marques-dos-santos)
+- 📄 Aqui estão as minhas habilidades e experiências [www.linkedin.com/in/jessica-isabelle-marques-dos-santos](www.linkedin.com/in/jessica-isabelle-marques-dos-santos)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
